@@ -121,3 +121,5 @@
 
 
 ![заява](https://github.com/nazar-chepliaka/for-doc/blob/main/photo_2026-08-31_04-02-43.jpg)
+
+потім мене закрили на "лікування".
